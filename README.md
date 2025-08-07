@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Karthikeyang031@gmail.com**
 
-- ⚡ Fun fact **Gamer,Intrested in Girls**
+- ⚡ Fun fact **Gamer,photo editor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
